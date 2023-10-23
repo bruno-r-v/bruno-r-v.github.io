@@ -1,2 +1,6 @@
-# bruno-r-v.github.io
-Senior Scrum Master | Product Owner | IT Project Manager 
+# Scrum Master
+
+### Education
+Acsenda School of Management
+
+### Work Experience
